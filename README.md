@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Terooox
 - 👀 I’m interested in learning codes at GitHub
 - 🌱 I’m currently learning everything
-- 📫 How to reach me ...
 - 😄 Pronouns: Don't Have Any
 - ⚡ Fun fact: Like to play distortion music
 
